@@ -29,4 +29,4 @@ Either scripting or exploiting a glitch or a bug that the Bot may have, for Your
 <br>
 
 ### **Inquiries**
-If You have any questions or concerns about our terms of service, please feel free to contact **King TMK#0666** on the Discord app, or send an email to officialkoh@outlook.com.
+If You have any questions or concerns about our terms of service, please feel free to contact **@kingtmk** on the Discord app, or send an email to officialkoh@outlook.com.
